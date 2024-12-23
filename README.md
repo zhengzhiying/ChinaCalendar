@@ -1,0 +1,1 @@
+苹果官方中国大陆节假日订阅地址：https://calendars.icloud.com/holidays/cn_zh.ics
